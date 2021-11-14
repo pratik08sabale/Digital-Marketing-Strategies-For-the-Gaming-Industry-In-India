@@ -94,4 +94,3 @@ I hope you like this blog and are excited to use these strategies for your game.
 
 Best of luck! Thank you!
 
-Author Bio: Arjun Sharma helps businesses sell their products and services by putting them into words that convince, persuade and make action happen.
